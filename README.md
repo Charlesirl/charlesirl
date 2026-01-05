@@ -1,4 +1,4 @@
-8<div align="center"> こんにちは  !!!
+<div align="center"> こんにちは  !!!
 
   ![helicopter crashs](https://img.shields.io/badge/helicopter%20crashs-1,482-F04E38)
 
