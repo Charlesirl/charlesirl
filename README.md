@@ -1,4 +1,4 @@
-<div align="center"> こんにちは  !!!
+8<div align="center"> こんにちは  !!!
 
   ![helicopter crashs](https://img.shields.io/badge/helicopter%20crashs-1,482-F04E38)
 
@@ -15,7 +15,7 @@
 
 - Am she/her but call me what ever u think is better .
 
-- i spam following ppl , i thi k ppl are cool lol
+- i spam following ppl , i thi k ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING .
 
   
   
