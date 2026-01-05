@@ -34,6 +34,13 @@ I also get distracted so easily .💔
 
 > Also , Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
 
+## DNI/IWC IF :
+
+Dni is in my name 
+
+If you are a proshipper
+
+Racist / islamphopic / etc..
 
 >![Image](https://github.com/user-attachments/assets/88180679-db4c-4069-ba46-1b5008f0ea08)
 
