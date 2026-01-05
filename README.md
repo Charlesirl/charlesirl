@@ -101,3 +101,4 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 ![Image](https://github.com/user-attachments/assets/b3ad213b-8393-4ccf-98bb-198747fc0414)
   
+(**this page is a HUGE wip , i will add new things soon!**)
