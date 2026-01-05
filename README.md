@@ -13,7 +13,7 @@
 
 - I dont use my real name , call me whatever u want , but i prefer calling me sakura ! 
 
--   Am she/her but call me what ever u think is better .
+- Am she/her but call me what ever u think is better .
 
 - i spam following ppl , i thi k ppl are cool lol
 
@@ -21,11 +21,11 @@
   
 - I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
 
-   - Also am late to trends and things like that , so if u were talking about them , i wont understand.
+- Also am late to trends and things like that , so if u were talking about them , i wont understand.
 
 - Sometimes i type in wired ways likethis or like.that. , tell me if u want me to stop , i dont mind .
 
-  - I dont accpet random friend/party req ,  if this happens i block the person/pony .
+- I dont accpet random friend/party req ,  if this happens i block the person/pony .
 
 - W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
 
