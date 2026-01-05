@@ -30,7 +30,7 @@ possible .
 
 - W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
 
-- TALK ABOUT UR INTERESTS , I DONT BITE . 
+- TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests :D .
 
 > I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .💔
