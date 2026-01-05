@@ -17,8 +17,9 @@
 
 - i spam following ppl , i thi k ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING .
 
-  
-  
+- Most of the time am in school , But i try to get on pt as long as 
+possible .
+
 - I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
 
 - Also am late to trends and things like that , so if u were talking about them , i wont understand.
