@@ -96,3 +96,6 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
   𝚈𝚘𝚞 𝚑𝚊𝚟𝚎 𝚋𝚎𝚎𝚗 𝚍𝚒𝚜𝚝𝚛𝚊𝚌𝚎𝚍
+
+![Image](https://github.com/user-attachments/assets/b3ad213b-8393-4ccf-98bb-198747fc0414)
+  
