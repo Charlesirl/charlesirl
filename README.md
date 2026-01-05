@@ -13,9 +13,12 @@
 
 - I dont use my real name , call me whatever u want , but i prefer calling me sakura ! 
 
--   Am she/her but call me what ever u see better .
+-   Am she/her but call me what ever u think is better .
 
+- i spam following ppl , i thi k ppl are cool lol
 
+  
+  
 - I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
 
    - Also am late to trends and things like that , so if u were talking about them , i wont understand.
@@ -77,7 +80,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
 reading , playing games , watching T.V / films , coding , creating ocs , baseball , football , basketball , borad games , Playing musical instruments , listing to music , bakeing / cooking , drawing . 
     </p>
   </details>
-  
+
 ![Image](https://github.com/user-attachments/assets/14811a39-4ae6-46de-90ee-25c286b6667c)
 
   <div align="center">
