@@ -61,7 +61,7 @@ Racist / islamphopic / homophobic /etc..
     <p align="center">
     
 charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
-(minecraft:storymode) | noli (roblox forsaken) | 007n7 (roblox forsaken) | veeronica (roblox forsaken) | mr.puzzles (smg4) | smg3 (smg4) | mr.(ant)tenna (Deltarune) | cuphead (cuphead) | king dice (cuphead) | green (alan becker) | The dark lord (alan becker) | shelly (Dandys world) | Astro (dandys world) | lime girl (let him go) | catnap (poppy playtime) | Venom (Marvels spider-man) | william afton (fanf) | .(THEREISMOREBTW)
+(minecraft:storymode) | noli (roblox forsaken) | 007n7 (roblox forsaken) | veeronica (roblox forsaken) | mr.puzzles (smg4) | smg3 (smg4) | mr.(ant)tenna (Deltarune) | cuphead (cuphead) | king dice (cuphead) | green (alan becker) | The dark lord (alan becker) | shelly (Dandys world) | Astro (dandys world) | lime girl (let him go) | catnap (poppy playtime) | Venom (Marvels spider-man) | william afton (fanf) | sundrop/moondrop  .(THEREISMOREBTW)
 
 </p>
 
@@ -71,7 +71,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
   <details>
     <summary>Gamesඞ</summary>
     <p align="center">
-    Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin' creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats . 
+    Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin' creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats .
     </p>
   </details>
 
