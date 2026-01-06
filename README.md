@@ -43,7 +43,7 @@ Dni is in my name
 
 If you are a proshipper
 
-Racist / islamphopic / etc..
+Racist / islamphopic / homophobic /etc..
 
 >![Image](https://github.com/user-attachments/assets/88180679-db4c-4069-ba46-1b5008f0ea08)
 
