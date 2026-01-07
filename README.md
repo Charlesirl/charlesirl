@@ -7,29 +7,28 @@
 
 ##  𝑡ℎ𝑖𝑛𝑔𝑠 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒 𝑖𝑓 𝑢 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑖𝑛𝑡.!☆
 
-✦•┈๑⋅⋯ ⋯⋅๑┈•✦
-- this is just an alt acc for pt.
+
+ ![20](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4330.gif)      this is just an alt acc for pt.
   
-- I dont use my real name , call me whatever u want , but i prefer calling me sakura ! 
+ ![10](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_3390.gif) I dont use my real name , call me whatever u want , but i prefer calling me sakura ! 
 
-- Am she/her but call me what ever u think is better .
+![11](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_3927.gif) Am she/her but call me what ever u think is better .
 
-- i spam following ppl , i think ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING .
+ ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) i spam following ppl , i think ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING .
 
-- Most of the time am in school , But i try to get on pt as long as 
-possible .
+![13](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4322.gif) Most of the time am in school , But i try to get on pt as long as possible .
 
-- I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
+![14](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4323.gif) I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
 
-- Also am late to trends and things like that , so if u were talking about them , i wont understand.
+ ![15](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4325.gif) Also am late to trends and things like that , so if u were talking about them , i wont understand.
 
-- Sometimes i type in wired ways likethis or like.that. , tell me if u want me to stop , i dont mind .
+![16](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4326.gif) Sometimes i type in wired ways likethis or like.that. , tell me if u want me to stop , i dont mind .
 
-- I dont accpet random friend/party req ,  if this happens i block the person/pony .
+![17](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4327.gif) I dont accpet random friend/party req ,  if this happens i block the person/pony .
 
-- W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
+ ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
 
-- TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests :D .
+ ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests :D .
 
 > I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .💔
