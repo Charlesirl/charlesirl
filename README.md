@@ -27,7 +27,7 @@
 
 ![17](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4327.gif) I dont accpet random friend/party req ,  if this happens i block the person/pony .
 
- ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always ofdont be a freaky person , i hate these ppl .
+ ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always offtab , dont be a freaky person , i hate these ppl .
 
  ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests :D .
 
