@@ -85,8 +85,8 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
   <details>
     <summary> ‎ ‎ ![](https://i.postimg.cc/Px1JD6Wp/114.gif) hobbies✮⋆˙</summary>
     <p align="center">
-reading , playing games , watching T.V / films , coding , creating ocs , baseball , football , basketball , borad games , Playing musical instruments , listing to music , bakeing / cooking , drawing , making/coding simple games .
-    </p>
+reading , playing games , watching T.V / films , coding , creating ocs , baseball , football , basketball , borad games , Playing musical instruments , listing to music , bakeing / cooking , drawing , making/coding simple games , reading about space .
+</p>
   </details>
 
 
