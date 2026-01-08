@@ -77,7 +77,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
   <details>
     <summary>![](https://i.postimg.cc/T2jf6dY8/auk56j.gif) music♬.ᐟ</summary>
     <p align="center">
-    IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREDDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto) , hi-fi osts , forsaken osts , minecraft osts .
+    IM SANE (axie) , terrible things (axie) , MUFFIEN (Cg5) , stuck inside (cg5 remix) , 1 of US (Cg5) , child wielding a needle (Cg5), dropthebassonthestereo (Cg5) , FREDDY (Cg5) , Hold the mine (Cg5) , AM NOT AN EGG (Cg5) , i see a dreamer (Cg5) , locked away (Cg5) , your idol (Cg5 remix) , cheat codes (nitro fun) , triple baka (miku) , magical loveshot (miku) , static (miku) , PPPP (miku and teto) , hi-fi rush osts , forsaken osts , minecraft osts .
     </p>
   </details>
 
