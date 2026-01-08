@@ -29,7 +29,7 @@
 
  ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always offtab , dont be a freaky person , i hate these ppl .
 
- ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests :D .
+ ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests , one thing : DONT LET ME START CUZ I SUCK AT STARTING CONVERSATIONS OKAY?
 
 > I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .💔
