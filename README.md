@@ -29,6 +29,8 @@
 
  ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always offtab .
 
+![](https://64.media.tumblr.com/62bff898cae5e919b0f4202318db57c4/f035535f3a1f4509-2f/s75x75_c1/3e515bf20544aaa53f9883d301dd346eed864b75.gifv) i am kinda sensitive and i dont like to upset anyone (unless he is anoying me) .
+
  ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests , one thing : DONT LET ME START CUZ I SUCK AT STARTING CONVERSATIONS OKAY?
 
 > I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
