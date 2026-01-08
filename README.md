@@ -27,7 +27,7 @@
 
 ![17](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4327.gif) I dont accpet random friend/party req ,  if this happens i block the person/pony .
 
- ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always offtab , dont be a freaky person , i hate these ppl .
+ ![18](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4328.gif) W2i cuz am almost always offtab .
 
  ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests , one thing : DONT LET ME START CUZ I SUCK AT STARTING CONVERSATIONS OKAY?
 
@@ -38,12 +38,11 @@ I also get distracted so easily .💔
 
 ## DNI/IWC IF :
 
-Dni is in my name 
+basic dni 
 
-If you are a proshipper
+shipper , proshipper , 25+ (sorry , i just dont like adults for my personal reasons , sorry again) , bullies , someone who uses ppl , ppl how think they are always right , roleplayers (unless u told me , but i will say no anyway) , freaky , wired .
 
 Racist / islamphopic / homophobic /etc..
-
 
 <img width="640" height="85" alt="Image" src="https://github.com/user-attachments/assets/5d8db79b-66e0-492d-916b-1ee7363dc884" />
 
@@ -69,7 +68,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
   <details>
     <summary>Gamesඞ</summary>
     <p align="center">
-    Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin' creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats .
+    Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin's creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats .
     </p>
   </details>
 
