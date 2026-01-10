@@ -1,5 +1,7 @@
 <img width="1080" height="272" alt="Image" src="https://github.com/user-attachments/assets/6fc59833-160a-4004-8e81-43ce28a22b93" />
 
+<img width="517" height="482" alt="Image" src="https://github.com/user-attachments/assets/ab47804e-aacc-4daf-8cfc-50e67929a83a" />
+
 <div align="center"> こんにちは  !!!
 
   ![helicopter crashs](https://img.shields.io/badge/helicopter%20crashs-1,482-F04E38)
@@ -70,7 +72,7 @@ charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry s
   <details>
     <summary>Gamesඞ</summary>
     <p align="center">
-    Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin's creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats .
+Puppeteer | Henry stickmin | undertale | minecraft:storymode | cuphead | tf2 | horizon | ghost of tsushima | minecraft | assassin's creed | metal gear solid | astro bot | rayman | little big planet 1,2,3 | Sackboy a big Adventure | batim | JUST DANCE | little nightmares | Poppy playtime | Five night at freddys | fnaf security breach | sky children of the light | just shapes and beats .
     </p>
   </details>
 
@@ -107,7 +109,9 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 
 
-![Image](https://github.com/user-attachments/assets/3714abd8-abe4-4689-b900-a75772671c71)
+<img width="163" height="346" alt="Image" src="https://github.com/user-attachments/assets/42cc9707-2ae8-4002-9227-05c30059800d" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/39ada87a-112e-4b44-8797-94ab1fbb7c9e" />![Image](https://github.com/user-attachments/assets/5171a090-3d55-4f33-9b3f-2fc7b844b2ae)![Image](https://github.com/user-attachments/assets/70a80bf1-9f93-4811-9cdc-7a9afcfcfd91)![Image](https://github.com/user-attachments/assets/b60b7660-6d8e-478b-b69c-0562c2fd6c12)
 
 
 
