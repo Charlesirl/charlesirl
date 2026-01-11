@@ -1,10 +1,10 @@
-<img width="1080" height="272" alt="Image" src="https://github.com/user-attachments/assets/6fc59833-160a-4004-8e81-43ce28a22b93" />
+<img width="540" height="216" alt="Image" src="https://github.com/user-attachments/assets/cd9053d4-431c-418d-a6a7-fca24a848506" />
 
 ![Image](https://github.com/user-attachments/assets/a100a53d-7518-4ff7-b352-5669d861dc21)
 
 <div align="center"> こんにちは  !!!
 
-  ![helicopter crashs](https://img.shields.io/badge/helicopter%20crashs-1,482-F04E38)
+  ![⚔](https://img.shields.io/badge/⚔%20-1,482-F04E38)
 
 
 
@@ -39,6 +39,10 @@
 I also get distracted so easily .💔
 
 > Also , Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
+
+
+![Image](https://github.com/user-attachments/assets/58a8e0f4-44e5-4612-b9f6-b9f137a2d07f)
+
 
 ## DNI/IWC IF :
 
