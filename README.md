@@ -48,6 +48,11 @@ shipper , proshipper , 25+ (sorry , i just dont like adults for my personal reas
 
 Racist / islamphopic / homophobic /etc..
 
+
+![Image](https://github.com/user-attachments/assets/3cfa6fdd-ffc5-4af3-ab29-0630b93249cc)
+
+NOLIIIIIII
+
 <img width="640" height="85" alt="Image" src="https://github.com/user-attachments/assets/5d8db79b-66e0-492d-916b-1ee7363dc884" />
 
 # **INTERESTS**
