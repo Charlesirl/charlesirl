@@ -48,7 +48,7 @@ I also get distracted so easily .💔
 
 basic dni 
 
-shipper , proshipper , 25+ (sorry , i just dont like adults for my personal reasons , sorry again) , bullies , someone who uses ppl , ppl how think they are always right , roleplayers (unless u told me , but i will say no anyway) , freaky , wired .
+shipper , proshipper , 25+ (sorry , i just dont like adults for my personal reasons , sorry again) , bullies , someone who uses ppl , ppl how think they are always right , roleplayers (unless u told me , but i will say no anyway) , freaky , wired , any bad side of any fandom .
 
 Racist / islamphopic / homophobic /etc..
 
@@ -70,8 +70,8 @@ NOLIIIIIII
     <summary>   ![](https://i.postimg.cc/4NtDs9kG/2b4e4005.gif)characters🎭</summary>
     <p align="center">
     
-charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
-(minecraft:storymode) | noli (roblox forsaken) | 007n7 (roblox forsaken) | veeronica (roblox forsaken) | mr.puzzles (smg4) | smg3 (smg4) | mr.(ant)tenna (Deltarune) | cuphead (cuphead) | king dice (cuphead) | green (alan becker) | The dark lord (alan becker) | shelly (Dandys world) | Astro (dandys world) | lime girl (let him go) | catnap (poppy playtime) | Venom (Marvels spider-man) | william afton (fanf) | sundrop/moondrop  .(THEREISMOREBTW)
+noli (every version of noli especially hello john doe) |charles(henry stickmin) | henry stick man (henry stickmin) | ellie rose (henry stickmin) | ivor (minecraft:storymode) | cassie rose (minecraft:storymode) | harper
+(minecraft:storymode) | 007n7 (roblox forsaken) | veeronica (roblox forsaken) | mr.puzzles (smg4) | smg3 (smg4) | mr.(ant)tenna (Deltarune) | cuphead (cuphead) | king dice (cuphead) | green (alan becker) | The dark lord (alan becker) | shelly (Dandys world) | Astro (dandys world) | lime girl (let him go) | catnap (poppy playtime) | Venom (Marvels spider-man) | william afton (fanf) | sundrop/moondrop  .(THEREISMOREBTW)
 
 </p>
 
