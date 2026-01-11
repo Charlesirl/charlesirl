@@ -132,6 +132,10 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 ![](https://file.garden/ZThm5XlIhS-zreax/image_2024-09-25_221613230.png)
 
 
+
+![Image](https://github.com/user-attachments/assets/ae883cae-076d-43ef-bcab-c94cc73cb852)
+
+
 ![Image](https://github.com/user-attachments/assets/ddc1fd38-fd99-4607-8e5b-549ba864c95c)
 
 
