@@ -1,6 +1,6 @@
 <img width="1080" height="272" alt="Image" src="https://github.com/user-attachments/assets/6fc59833-160a-4004-8e81-43ce28a22b93" />
 
-<img width="517" height="482" alt="Image" src="https://github.com/user-attachments/assets/ab47804e-aacc-4daf-8cfc-50e67929a83a" />
+![Image](https://github.com/user-attachments/assets/a100a53d-7518-4ff7-b352-5669d861dc21)
 
 <div align="center"> こんにちは  !!!
 
