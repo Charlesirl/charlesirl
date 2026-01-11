@@ -118,7 +118,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 
 
-<img width="163" height="346" alt="Image" src="https://github.com/user-attachments/assets/42cc9707-2ae8-4002-9227-05c30059800d" />
+![Image](https://github.com/user-attachments/assets/09def40c-136e-4c98-a7e2-57f573fbc0c1)
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/39ada87a-112e-4b44-8797-94ab1fbb7c9e" />![Image](https://github.com/user-attachments/assets/5171a090-3d55-4f33-9b3f-2fc7b844b2ae)![Image](https://github.com/user-attachments/assets/70a80bf1-9f93-4811-9cdc-7a9afcfcfd91)![Image](https://github.com/user-attachments/assets/b60b7660-6d8e-478b-b69c-0562c2fd6c12)
 
