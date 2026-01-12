@@ -6,7 +6,7 @@
 
 <div align="center"> こんにちは  !!!
 
-  ![⚔](https://img.shields.io/badge/⚔%20-1,482-F04E38)
+  ![⚔](https://img.shields.io/badge/⚔%20-1,482-blue)
 
 
 
