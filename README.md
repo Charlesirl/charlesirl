@@ -50,7 +50,7 @@ I also get distracted so easily .💔
 
 basic dni 
 
-shipper , proshipper , 25+ (sorry , i just dont like adults for my personal reasons , sorry again) , bullies , someone who uses ppl , ppl how think they are always right , roleplayers (unless u told me , but i will say no anyway) , freaky , wired , any bad side of any fandom .
+shipper , proshipper , bullies , someone who uses ppl , ppl how think they are always right , roleplayers (unless u told me , but i will say no anyway) , freaky , wired , any bad side of any fandom .
 
 Racist / islamphopic / homophobic /etc..
 
@@ -104,7 +104,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
   </details>
 
 
-![Image](https://github.com/user-attachments/assets/14811a39-4ae6-46de-90ee-25c286b6667c)
+
 
 
 
@@ -113,8 +113,7 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
-  𝚈𝚘𝚞 𝚑𝚊𝚟𝚎 𝚋𝚎𝚎𝚗 𝚍𝚒𝚜𝚝𝚛𝚊𝚌𝚎𝚍
-
+  
   
 (**this page is a HUGE wip , i will add new things soon !**) 
 
