@@ -47,6 +47,8 @@
 
  ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests , one thing : DONT LET ME START CUZ I SUCK AT STARTING CONVERSATIONS OKAY?
 
+  ![](https://files.catbox.moe/ap0lvv.gif) ![](https://files.catbox.moe/rgbwa9.gif) 007n7 , noli and charles are my hvy kins.
+
 > I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
 I also get distracted so easily .
 
