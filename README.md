@@ -74,6 +74,34 @@ NOLIIIIIII
   
  u can click the arrows.
   
+<details>
+  <summary><img src="https://files.catbox.moe/yd9kd8.gif" alt="fandoms gif" width="30" /> fandoms</summary>
+
+  - hi-fi rush
+- minecraft
+- minecraft storymode
+- henry stickmin
+- just shapes and beats 
+- tf2
+- fnf
+- fnaf
+- cuphead
+- STH
+- ppt
+- roblox myths
+- roblox forsaken
+- dandys world
+- bad things
+- GASA4
+- Block tales
+- SFOTH
+- Lit him go (LHG)
+- sonic rewrite
+- smg4
+- ava
+- avm
+
+</details>
 
  <div align="center">
   <details>
