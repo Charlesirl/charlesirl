@@ -155,4 +155,4 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 <img width="1280" height="86" alt="Image" src="https://github.com/user-attachments/assets/7106fd74-79fa-425b-a0d7-c937b0a55833" />
 
-oh so u read it ? It took me 3 tut to make this (**cries**) Plus , u will never know how old am i (**Evil laugh**)
+oh so u read it ? It took me 3 tut to make this :cries: Plus , u will never know how old am i :Evil laugh:
