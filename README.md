@@ -48,7 +48,7 @@
  ![19](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4329.gif) TALK ABOUT UR INTERESTS , I DONT BITE , i love listing to ppls another interests , one thing : DONT LET ME START CUZ I SUCK AT STARTING CONVERSATIONS OKAY?
 
 > I have ADHD and  ALOT of issues with my memory , so plz dont hate me if i forgot something about you , am trying my best , ok?
-I also get distracted so easily .💔
+I also get distracted so easily .
 
 > Also , Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
 
@@ -58,11 +58,7 @@ I also get distracted so easily .💔
 
 ## DNI/IWC IF :
 
-basic dni 
-
-shipper , proshipper , bullies , someone who uses ppl , ppl how think they are always right , roleplayers (unless u told me , but i will say no anyway) , freaky , wired , any bad side of any fandom .
-
-Racist / islamphopic / homophobic /etc..
+i dont really have a dni list but plz dont in if ur Racist or islamphopic . And things like that.
 
 
 ![Image](https://github.com/user-attachments/assets/09def40c-136e-4c98-a7e2-57f573fbc0c1)
