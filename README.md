@@ -29,11 +29,11 @@
 
 ![11](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_3927.gif) Am she/her but call me what ever u think is better .
 
- ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) i spam following ppl , i think ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING .
+ ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) spam follow ppl , i think ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING OK? Ok .
 
 ![13](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4322.gif) Most of the time am in school , But i try to get on pt as long as possible .
 
-![14](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4323.gif) I LOVE cuddles and piles , sit with me even if am already with someone(unless we are talking) .
+![14](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4323.gif) I LOVE cuddles and piles , sit with me even if am already with someone(unless dniuf in name) .
 
  ![15](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4325.gif) Also am late to trends and things like that , so if u were talking about them , i wont understand.
 
@@ -181,4 +181,4 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 <img width="1280" height="86" alt="Image" src="https://github.com/user-attachments/assets/7106fd74-79fa-425b-a0d7-c937b0a55833" />
 
-oh so u read it ? It took me 3 tut to make this :cries: Plus , u will never know how old i am ;) 
+oh so u read it ? It took me 3 tut to make this :cries:
