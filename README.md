@@ -29,8 +29,8 @@
 
 ![11](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_3927.gif) Am she/her but call me what ever u think is better .
 
- ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) spam follow ppl , i think ppl are cool lol , PLZ TELL ME IF THE PERSON I FOLLOWED IS BAD OR SOMETHING OK? Ok .
-
+ ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) i dont spam follow , i just follow random ppl and friends .
+ 
 ![13](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4322.gif) Most of the time am in school , But i try to get on pt as long as possible .
 
 ![14](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4323.gif) I LOVE cuddles and piles , sit with me even if am already with someone(unless dniuf in name) .
