@@ -181,4 +181,4 @@ reading , playing games , watching T.V / films , coding , creating ocs , basebal
 
 <img width="1280" height="86" alt="Image" src="https://github.com/user-attachments/assets/7106fd74-79fa-425b-a0d7-c937b0a55833" />
 
-oh so u read it ? It took me 3 tut to make this :cries:
+${\small \textsf{\color{#4A2C71}so...u read it ?}}$ 
