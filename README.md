@@ -14,7 +14,9 @@
 
 ![Image](https://github.com/user-attachments/assets/a100a53d-7518-4ff7-b352-5669d861dc21)
 
-<div align="center"> こんにちは  !!!
+<div align="center">  
+
+${\huge \textsf{\color{darkgreen}こんにちは!!!}}$ 
 
   ![⚔](https://img.shields.io/badge/⚔%20-1,482-blue)
 
