@@ -21,21 +21,29 @@ ${\huge \textsf{\color{darkgreen}こんにちは!!!}}$
   ![⚔](https://img.shields.io/badge/⚔%20-1,482-blue)
 
 
+  <div align="center">
 
-##  𝑡ℎ𝑖𝑛𝑔𝑠 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒 𝑖𝑓 𝑢 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑖𝑛𝑡.!☆
+
+<details>
+  <summary>
+    <img src="https://github.com/user-attachments/assets/5c10f3a7-20a4-4695-804b-abd4bfbf8a69" alt="Image" width="20"> ${\huge \textsf{\color{Lightblue}ABOUT ME !1!}}$ 
+  </summary>
+  <div align="center">
 
 
- ![20](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4330.gif)      this is just an alt acc for pt.
+   
   
  ![10](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_3390.gif) I dont use my real name , call me whatever u want , but i prefer calling me sakura ! 
 
 ![11](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_3927.gif) Am she/her but call me what ever u think is better .
 
- ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) i dont spam follow , i just follow random ppl and friends .
+ ![12](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4321.gif) i dont spam follow , i follow pll that i think they are cool
  
 ![13](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4322.gif) Most of the time am in school , But i try to get on pt as long as possible .
 
 ![14](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4323.gif) I LOVE cuddles and piles , sit with me even if am already with someone(unless dniuf in name) .
+
+
 
  ![15](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4325.gif) Also am late to trends and things like that , so if u were talking about them , i wont understand.
 
@@ -55,14 +63,25 @@ ${\huge \textsf{\color{darkgreen}こんにちは!!!}}$
 I also get distracted so easily .
 
 > Also , Enlish isnt my main language , i speak arabic and japaness , sorry if my english was bad ;-;
+  
+</details>
+
 
 
 ![Image](https://github.com/user-attachments/assets/58a8e0f4-44e5-4612-b9f6-b9f137a2d07f)
 
 
-## DNI/IWC IF :
+<details>
+  <summary>
+    <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4330.gif" alt="20"> DNI IF : 
+  </summary>
+  <div align="center">
+    
+ i dont really have a dni list but plz dont in if ur Racist or islamphopic . And things like that.
 
-i dont really have a dni list but plz dont in if ur Racist or islamphopic . And things like that.
+
+  </div>
+</details>
 
 
 ![Image](https://github.com/user-attachments/assets/09def40c-136e-4c98-a7e2-57f573fbc0c1)
